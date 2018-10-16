@@ -6,8 +6,12 @@
 - Possible Health Problems (JEB's Disease)
 - How to train (wagon)
 
+Audience: People who own Clydesdales
+
 ## Care
 - Equine chiropractics
+
+One part of owning animals is keeping then healthy and happy. These horses are athletes and have problems just like us. We will take a look at the signs that your horse needs a visit.
 
 ## Health Problems
 - JEB's Disease
