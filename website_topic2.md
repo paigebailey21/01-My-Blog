@@ -11,10 +11,12 @@ Audience: People who own Clydesdales
 ## Care
 - Equine chiropractics
 
-One part of owning animals is keeping then healthy and happy. These horses are athletes and have problems just like us. We will take a look at the signs that your horse needs a visit.
+One part of owning animals is keeping then healthy and happy. These horses are athletes and have problems just like us. We will take a look at the signs that your horse needs a visit. What vets availible nearby, that provide this service. What injuries they work on and how it fixes the problem.
 
 ## Health Problems
 - JEB's Disease
+
+It's a genetic disease. We would talk about what gene is effected and how, andwhat tests are availible.
 
 ## Training
 - Wagon
