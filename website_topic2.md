@@ -2,8 +2,8 @@
 
 ## About
 - Who I am
--Upcoming clydesdale event
--Best of the best
+- Upcoming clydesdale event
+- Best of the best
 
 ## Top Bloodlines
 - Who owns them
