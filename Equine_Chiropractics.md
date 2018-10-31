@@ -13,3 +13,5 @@ The very first thing that chiropractors do is examine the horse and identify the
  
 ## Local Equine Chiropractors
 There are eight animal chiropractors in the state of Arkansas. The office that specializes in Equine services are located on N. Sunshine road in Fayetteville, rightly name Northwest Equine Services. The attending vet is Dr. Anthony Paul Turchi. He has been in the business for twenty-five years and they are open Monday- Saturday 8:00am- 5:00pm. Another office with extremely high ratings is JB Animal Chiropractics. Jordana Beutelschies is the backbone of the office. She is located in Van Buren, where she was born and raised. Dr. Jordana works on all animals any sizes and can be found in the clinic Monday- Friday 6:00am- 8:00pm.
+
+Picture Provided By: http://www.laketolakevetchiro.com/Services.html
