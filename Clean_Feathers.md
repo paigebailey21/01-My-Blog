@@ -11,3 +11,5 @@ Clydesdales are prone to many skin diseases such as chronic progressive lymphede
 Thrush is a bacterial infection. This fusobacterium is an anaerobic species that occurs naturally and thrives in moist muddy conditions. If your horse has thrush the frog will be a black color, have a foul odor, and be tender to the touch. In extreme cases deep pockets are found by the heel bulbs. Most draft horse owners will experience thrush at least once. Thrush management is important. Keeping the feet trimmed, balanced, and clean is a good way to prevent it. Feather coloration can be an indicator of when it is time to clean the hooves. If the feathers are nasty, the hooves probably are too. Thrush can be easily treated if caught early, just like CPL. While preforming the daily feather grooming it would be a good idea to check for signs of thrush.
 
 ![Trush](https://github.com/paigebailey21/01-My-Blog/blob/master/thrush.pdf)
+
+Picture Provided By:  http://www.flickr.com/photos/kadacat/2099651016/
