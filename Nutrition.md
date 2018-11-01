@@ -1,5 +1,8 @@
 ## Budweiser Hitch
 What an organism consumes on a daily basis greatly effects the health of that organism. A well balanced diet can greatly improve the performance of your Clydesdale. Just to give you an idea of how much these gentle giants can consumer, Budweiser feeds their hitch horses about sixty pounds of hay, twenty to twenty-five quarts of grain, and thirty gallons of water each day! Horses generally need to eat about two percent of their body weight in feed each day.  The Budweiser hitch works pretty hard throughout the weeks, which means they need more feed, than a horse that does light work, to maintain a the body score. The scale for body scores og 5-6. Essentially, the spine and ribs should not be seen, but can be felt. The neck, shoulders, and withers should be smooth; while the tail head is slightly spongy.
 
+## Feeding a Weanling
+
+
 
 Picture Provided By: http://www.ariannanotech.com/activities/feed-ingredients
